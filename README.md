@@ -21,4 +21,4 @@
 高清资源，流畅观看
 每一部日本AV视频都经过精心筛选，提供高清画质和流畅播放，让你在任何设备上都能享受到顶级的观看体验。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/hh54053/240360 ）</span>
